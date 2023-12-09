@@ -6,6 +6,7 @@ Iyyappan
 Arun
 Pranesh
 Maithreyan
+Arull
 
 Mint your carbon emissions and footprint as NFT using Soulprint.
 
